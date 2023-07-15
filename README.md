@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **amanmaurya8419@gmail.com**
 
-- 📄 Know about my experiences **[Resume](https://drive.google.com/file/d/1fGg2pHbluJb_zeOLnX6RtKUdSQqdzJOt/view?usp=share_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1fGg2pHbluJb_zeOLnX6RtKUdSQqdzJOt/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
